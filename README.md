@@ -14,8 +14,8 @@ This is a fully SEO-optimized commercial website for selling:
 - Bulk stamp orders
 
 -  Location: Nairobi CBD, Kenya  
--  Phone: 0778046004  
--  WhatsApp: https://wa.me/254778046004  
+-  Phone: ***********  
+-  WhatsApp: *********
 -  Prices: From KSh 800  
 - Delivery: Same-day Nairobi / 1–3 days nationwide  
 
